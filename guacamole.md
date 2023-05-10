@@ -1,6 +1,6 @@
 Ingredients:
 - 2 avocados
-- 1/4 red onion
+- 1/4 small red onion
 - 1 lime
 - 2 tsp salt
 
